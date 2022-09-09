@@ -3,6 +3,12 @@
 
 영상 업로드 날짜: 2021. 7. 23  ~  2021. 11. 20
 
+https://youtu.be/yoKzcc6Puo8
+
+https://youtu.be/G10Ma6b4jv8
+
+https://youtu.be/P61ez1Uj5O0
+
 2  :  https://www.youtube.com/watch?v=aeuOTB3uBYo
 
 전체적인 업데이트  :  https://www.youtube.com/watch?v=OFTWf-i_P5M
